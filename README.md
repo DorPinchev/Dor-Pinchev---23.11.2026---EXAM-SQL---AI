@@ -1,0 +1,1 @@
+# Dor-Pinchev---23.11.2026---EXAM-SQL---AI
